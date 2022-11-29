@@ -1,4 +1,4 @@
-# Hi, I’m @ustcyjwang
+# Hi, I’m Yijie WANG (王一杰).
 
 ## I’m interested in High Energy Physics
 
