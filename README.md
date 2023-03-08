@@ -2,10 +2,6 @@
 
 ## I’m interested in High Energy Physics
 
-### I am applying for a PhD. position now.
-
-📫 How to reach me: yjwang@mail.ustc.edu.cn
-
 🕸 Feel free to visit my personal website: https://yijiewang.netlify.app/ 
 
 <!---
