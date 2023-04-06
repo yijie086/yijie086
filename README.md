@@ -2,6 +2,8 @@
 
 ## I’m interested in High Energy Physics
 
+### I'll become a graduate student of MIT in fall of 2023. (^_^)Y
+
 🕸 Feel free to visit my personal website: https://yijiewang.netlify.app/ 
 
 <!---
